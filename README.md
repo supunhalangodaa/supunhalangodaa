@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @supunhalangodaa
 - 👀 I’m a Cyber Security Researcher ...
-- 📫 How to reach me ...
+- 👀 New Account (Old Account was Restricted :()
+- 📫 Reach Me on x@supunhalangoda.me
 
 <!---
 supunhalangodaa/supunhalangodaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
