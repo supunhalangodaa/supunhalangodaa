@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @supunhalangodaa
 - 👀 I’m a Cyber Security Researcher ...
-- 👀 New Account (Old Account was Restricted :()
+- 👀 New Account (Old Account was Restricted :( )
 - 📫 Reach Me on x@supunhalangoda.me
 
 <!---
